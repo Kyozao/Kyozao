@@ -1,4 +1,4 @@
-# Hey, I'm @Kyozao 🚀
+# Hey, I'm Kyo 🚀
 
 I'm just a code enthusiast having a blast with my keyboard
 
